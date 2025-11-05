@@ -2,3 +2,4 @@
 [02.Dando Saltos -Metricas Frias-Prod Granuja.mp3](https://github.com/user-attachments/files/23324537/02.Dando.Saltos.-Metricas.Frias-Prod.Granuja.mp3)
 [Mugshot - 2005 _ Album Completo _ Prod- Mauro Vise 青 [ECN1pKSAFJA].mp3](https://github.com/user-attachments/files/23345936/Mugshot.-.2005._.Album.Completo._.Prod-.Mauro.Vise.ECN1pKSAFJA.mp3)
 [C.R.O - Tirame.mp3](https://github.com/user-attachments/files/23345957/C.R.O.-.Tirame.mp3)
+[Trueno - ÑERI (Video Oficial).mp3](https://github.com/user-attachments/files/23348920/Trueno.-.NERI.Video.Oficial.mp3)
