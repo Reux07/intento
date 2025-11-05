@@ -3,3 +3,4 @@
 [Mugshot - 2005 _ Album Completo _ Prod- Mauro Vise 青 [ECN1pKSAFJA].mp3](https://github.com/user-attachments/files/23345936/Mugshot.-.2005._.Album.Completo._.Prod-.Mauro.Vise.ECN1pKSAFJA.mp3)
 [C.R.O - Tirame.mp3](https://github.com/user-attachments/files/23345957/C.R.O.-.Tirame.mp3)
 [Trueno - ÑERI (Video Oficial).mp3](https://github.com/user-attachments/files/23348920/Trueno.-.NERI.Video.Oficial.mp3)
+[Minecraft - Minero ft. StarkinDJ (Parodia de Torero de Chayanne).mp3](https://github.com/user-attachments/files/23352145/Minecraft.-.Minero.ft.StarkinDJ.Parodia.de.Torero.de.Chayanne.mp3)
